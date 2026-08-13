@@ -44,4 +44,4 @@ O Terror das galáxias e dos rebeldes,
 O Conquistador de mundos e sistemas,
 O Guardião do Lado Sombrio,
 Pai de Luke Skywalker,
-E aquele cujo nome é temido em cada estrela.
+E aquele cujo nome é temido em cada estrela..
