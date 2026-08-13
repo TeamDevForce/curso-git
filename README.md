@@ -28,7 +28,7 @@
 
 
 # Vinicius
-Jesus é Deus
+ASA DE MORCEGO, PENA DE GALINHA. SE VOCÊ GOSTA DO VS CODE, DÁ UMA RISADINHA.
 
 
 
